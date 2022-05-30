@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Evangelinendukwe
-- 👀 I’m interested in Digital marketing, content writing, technical writing, proofreading, product management, article writing, copy writing, copy editing.
-- 🌱 I’m currently learning Product Management
+- 👀 I’m interested in Product / Project Management.
+- 🌱 I’m currently looking for Project management opportunities.
 - 💞️ I’m looking to collaborate on every available project or contract.
 - 📫 How to reach me ndukweevangeline@gmail.com or +2347084987083
 
